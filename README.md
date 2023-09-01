@@ -1,3 +1,7 @@
+HEY!🙋‍♀️ , I AM TANISHA TRIPATHI.
+A PASSIONATE LEARNER.
+
+
 - 👋 Hi, I’m @Tanisha Tripathi.
 - 🌱 I’m currently learning WEB DEVELOPMENT and enhancing my DSA.
 - 📫 How to reach me tripathitanisha182@gmail.com.
